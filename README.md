@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, my name is Maria 👋
 - 🌱 I’m currently learning Java
 - 🤔 I’m looking for help with everything, lol
 - 📫 How to reach me: Instagram @fefxss
